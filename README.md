@@ -1,4 +1,4 @@
-# Hey, Im Timothy Sebastian!
+# Hey, Im Timothy Sebastian
 *linkedin.com/in/timothysebastian*
 
 1️⃣I am an **undergrad Computer Science** student who is interning at an BB Investment Bank
